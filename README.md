@@ -1,1 +1,1 @@
-# eayl-academy
+# OTHER WORDS eayl-academy
